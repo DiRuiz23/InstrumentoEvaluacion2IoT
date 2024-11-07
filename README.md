@@ -40,6 +40,7 @@ https://drive.google.com/drive/folders/1yyxnzDqTSxlsEESnKMy7SJt8MDnK1TG-?usp=sha
 https://drive.google.com/drive/folders/1XWQ2vhsBNG0M-J1PbzXqW3om_PL8bapE?usp=sharing
 <h6>Ejercicio avance de proyecto final<h6>
   https://drive.google.com/file/d/1AQj-o4kixPLwf9djYYVnNsuvucRvTGud/view?usp=drive_link
+  
 # Ejercicios en clase
 Juan Diego Ruiz Rivera
 https://drive.google.com/drive/folders/1VVKZMpEklxg3FUv6pk7cPSCfc2Bc9Mm-?usp=sharing
